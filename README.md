@@ -20,9 +20,9 @@ https://imgbox.com/galleries#/amQU34UxeX
 
 <h1>Important official WSGToken tweets to shill (2002-06-04)</h1>
 
-https://twitter.com/WSGToken/status/1532451618674950155
-
 https://twitter.com/WSGToken/status/1532437381013458951
+
+https://twitter.com/WSGToken/status/1532451618674950155
 
 https://twitter.com/WSGToken/status/1532694029317595139
 
