@@ -7,7 +7,7 @@ Do not use hashtags such as <b>"#WSG_The_best_community"</b> or "<b>"#WSG_GameFi
 Also, do not just post hashtags when shilling. These tweets get censored.
 
 
-<h3>Bad</h3>
+<h3>Bad:</h3>
 <b>"#WSGToken #WSG_PlayToEarn #WSG_The_best_community $WSG #WSGARMY #P2E #GameFi #NFT"</b>
 
 <h3>Good:</h3>
