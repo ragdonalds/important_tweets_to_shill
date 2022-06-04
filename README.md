@@ -40,8 +40,8 @@ https://twitter.com/WSGToken/status/1531316487859974144
   
 #WSG $WSG #WSGARMY #PlayToEarn #GameFi #NFT #BSC</b>
 <hr>
-<b>#WSGToken 🙌 #PlayToEarn extraordinaire!<br>
-  
+<b>#WSGToken 🙌 #PlayToEarn extraordinaire!
+<br>  
 #WSG $WSG #WSGARMY #P2E #GameFi #NFT #BSC </b>
 <hr>
 <b>I love #WSGToken ❤️ <br>
