@@ -24,3 +24,7 @@ https://twitter.com/WSGToken/status/1532694029317595139
 https://twitter.com/WSGToken/status/1532771715079720961
 
 https://twitter.com/WSGToken/status/1532698305158864898
+
+https://twitter.com/WSGToken/status/1530555284774608903
+
+https://twitter.com/WSGToken/status/1531316487859974144
