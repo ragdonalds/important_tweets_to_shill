@@ -36,12 +36,14 @@ https://twitter.com/WSGToken/status/1531316487859974144
 <hr>
 <h1>Sample texts to copy-paste as tweets</h1>
 
-<b>#WSGToken is my favourite #P2E project 🔥<br>
+<b>#WSGToken is my favourite #P2E project 🔥
+<br>
   
 #WSG $WSG #WSGARMY #PlayToEarn #GameFi #NFT #BSC</b>
 <hr>
 <b>#WSGToken 🙌 #PlayToEarn extraordinaire!
 <br>  
+  
 #WSG $WSG #WSGARMY #P2E #GameFi #NFT #BSC </b>
 <hr>
 <b>I love #WSGToken ❤️ <br>
@@ -53,4 +55,5 @@ t.me/wsgtoken<br>
 @WSGToken<br>
 wsg.gg
 <br>
+  
 #WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT #BSC</b>
