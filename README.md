@@ -17,7 +17,7 @@ Also, do not just post hashtags when shilling. These tweets get censored.
 
 <h4>Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:</h4>
 https://imgbox.com/galleries#/amQU34UxeX
-
+<hr>
 <h1>Important official WSGToken tweets to shill (Updated: 2002-06-04)</h1>
 
 https://twitter.com/WSGToken/status/1532437381013458951
@@ -33,19 +33,21 @@ https://twitter.com/WSGToken/status/1532698305158864898
 https://twitter.com/WSGToken/status/1530555284774608903
 
 https://twitter.com/WSGToken/status/1531316487859974144
-
-
+<hr>
 <h1>Sample texts to copy-paste as tweets</h1>
 
 <b>#WSGToken is my favourite #P2E project 🔥<br>
+  
 #WSG $WSG #WSGARMY #PlayToEarn #GameFi #NFT #BSC</b>
-
+<hr>
 <b>#WSGToken 🙌 #PlayToEarn extraordinaire!<br>
+  
 #WSG $WSG #WSGARMY #P2E #GameFi #NFT #BSC </b>
-
+<hr>
 <b>I love #WSGToken ❤️ <br>
+  
 #WSG $WSG #WSGARMY #P2E #GameFi #NFT #BSC</b>
-
+<hr>
 <b> #WSGToken: the hidden gem 💎 <bR>
 t.me/wsgtoken
 @WSGToken
