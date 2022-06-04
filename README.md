@@ -9,7 +9,8 @@ Do not just post hashtags when shilling, these tweets get censored.
 <h3>Good example:</h3>
 <b>"WSG is the GOAT of #PlayToEarn!
 #WSGToken #WSG $WSG #WSGARMY #P2E #GameFi #NFT"</b>
-<br>
+
+
 Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:
 https://imgbox.com/galleries#/amQU34UxeX
 
