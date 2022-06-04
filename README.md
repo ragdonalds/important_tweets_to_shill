@@ -33,3 +33,8 @@ https://twitter.com/WSGToken/status/1532698305158864898
 https://twitter.com/WSGToken/status/1530555284774608903
 
 https://twitter.com/WSGToken/status/1531316487859974144
+
+<h1>Sample texts to copy-paste as tweets</h1>
+
+<q>#WSGToken is my favourite #P2E project<br>
+#WSGToken #WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT</q>
