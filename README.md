@@ -15,7 +15,7 @@ Also, do not just post hashtags when shilling. These tweets get censored.
 #WSGToken #WSG $WSG #WSGARMY #P2E #GameFi #NFT"</b>
 
 
-Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:
+<h4>Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:</h4>
 https://imgbox.com/galleries#/amQU34UxeX
 
 <h1>Important official WSGToken tweets to shill (2002-06-04)</h1>
