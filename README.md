@@ -10,10 +10,10 @@ Good example:
 "WSG is the GOAT of #PlayToEarn!
 #WSGToken #WSG $WSG #WSGARMY #P2E #GameFi #NFT"
 
-Adding a WSG related gif is always a good idea as well, material for that can be found in the link below:
+Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:
 https://imgbox.com/galleries#/amQU34UxeX
 
-<h1>Important official WSGToken tweets to shill.</h1>
+<h1>Important official WSGToken tweets to shill (2002-06-04)</h1>
 
 https://twitter.com/WSGToken/status/1532451618674950155
 
