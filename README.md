@@ -1,5 +1,4 @@
-# important_tweets_to_shill
-Important official WSGToken tweets to shill and some guidelines.
+<h1>Important official WSGToken tweets to shill and some guidelines.</h1>
 
 When shilling WSG, please use the following hashtags to maximize exponation: #WSGToken #WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT.
 Do not just post hashtags when shilling, these tweets get censored.
