@@ -1,12 +1,13 @@
 <h1>Important official WSGToken tweets to shill and some guidelines.</h1>
 
-When shilling WSG, please use the following hashtags to maximize exponation: <b>#WSGToken #WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT</b>.
-Do not just post hashtags when shilling, these tweets get censored.
+When shilling WSG, please use the following hashtags to maximize exponation: <b>#WSGToken #WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT</b>. Do not use hashtags such as <b>"#WSG_The_best_community"</b> or "<b>"#WSG_GameFi</b>
 
-<h3>Bad example:</h3>
+Also, do not just post hashtags when shilling. These tweets get censored.
+
+<h3>Bad</h3>
 <b>"#WSGToken #WSG $WSG #WSGARMY #P2E #GameFi #NFT"</b>
 
-<h3>Good example:</h3>
+<h3>Good:</h3>
 <b>"WSG is the GOAT of #PlayToEarn!
 #WSGToken #WSG $WSG #WSGARMY #P2E #GameFi #NFT"</b>
 
