@@ -46,11 +46,11 @@ https://twitter.com/WSGToken/status/1531316487859974144
 <hr>
 <b>I love #WSGToken ❤️ <br>
   
-#WSG $WSG #WSGARMY #P2E #GameFi #NFT #BSC</b>
+#WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT #BSC</b>
 <hr>
 <b> #WSGToken: the hidden gem 💎 <bR>
 t.me/wsgtoken
 @WSGToken
 wsg.gg
 
-#WSG $WSG #WSGARMY #P2E #GameFi #NFT #BSC</b>
+#WSG $WSG #WSGARMY #P2E #PlayToEarn #GameFi #NFT #BSC</b>
