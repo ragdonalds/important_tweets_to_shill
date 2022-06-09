@@ -21,7 +21,7 @@ Also, do not just post hashtags when shilling. These tweets get censored.
 
 
 Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:
-https://imgbox.com/galleries#/amQU34UxeX
+https://imgur.com/a/lEpdVpw
 <hr>
 <h1>Important official WSGToken tweets to shill (Updated: 2002-06-04)</h1>
 
