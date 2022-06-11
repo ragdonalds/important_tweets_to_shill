@@ -23,7 +23,9 @@ Also, do not just post hashtags when shilling. These tweets get censored.
 Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:
 https://imgur.com/a/lEpdVpw
 <hr>
-<h1>Important WSGToken related tweets to shill (Updated: 2002-06-11)</h1>
+<h1>Important Wall Street Games related tweets to shill (Updated: 2002-06-11)</h1>
+
+https://twitter.com/SirNicco/status/1533917549603192834
 
 https://twitter.com/PlayToEarnGames/status/1532746429353050113?s=20&t=dMd_QKPX4rLXb1-RUg-Nmg
 
