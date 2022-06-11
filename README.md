@@ -23,21 +23,25 @@ Also, do not just post hashtags when shilling. These tweets get censored.
 Adding a WSG related gif is always a good idea as well, material for that can be found at the following url:
 https://imgur.com/a/lEpdVpw
 <hr>
-<h1>Important official WSGToken tweets to shill (Updated: 2002-06-04)</h1>
+<h1>Important WSGToken related tweets to shill (Updated: 2002-06-11)</h1>
+
+https://twitter.com/PlayToEarnGames/status/1532746429353050113?s=20&t=dMd_QKPX4rLXb1-RUg-Nmg
+
+https://twitter.com/WSGToken/status/1535238065530327041
 
 https://twitter.com/WSGToken/status/1532437381013458951
 
 https://twitter.com/WSGToken/status/1532451618674950155
 
-https://twitter.com/WSGToken/status/1532694029317595139
-
 https://twitter.com/WSGToken/status/1532771715079720961
-
-https://twitter.com/WSGToken/status/1532698305158864898
 
 https://twitter.com/WSGToken/status/1530555284774608903
 
 https://twitter.com/WSGToken/status/1531316487859974144
+
+https://twitter.com/GenxAnalytics/status/1534805307523837952?s=20&t=dMd_QKPX4rLXb1-RUg-Nmg
+
+https://twitter.com/WSGToken/status/1534884203137011713?s=20&t=dMd_QKPX4rLXb1-RUg-Nmg
 <hr>
 <h1>Sample texts to copy-paste as tweets</h1>
 
