@@ -25,7 +25,13 @@ https://imgur.com/a/lEpdVpw
 <hr>
 <h1>Important Wall Street Games related tweets to shill (Updated: 2002-06-11)</h1>
 
+https://twitter.com/WSGToken/status/1535607822431436804
+
+https://twitter.com/WSGToken/status/1535584733081608193
+
 https://twitter.com/SirNicco/status/1533917549603192834
+
+https://twitter.com/WSGToken/status/1535238065530327041
 
 https://twitter.com/PlayToEarnGames/status/1532746429353050113?s=20&t=dMd_QKPX4rLXb1-RUg-Nmg
 
